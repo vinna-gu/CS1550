@@ -1,3 +1,3 @@
 I submitted it a day late so lost 10%.... 
 
-Final Grade: ___
+Final Grade: 88%
