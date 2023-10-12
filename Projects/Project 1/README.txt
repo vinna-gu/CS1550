@@ -1,3 +1,1 @@
-I submitted it a day late so lost 10%.... 
 
-Final Grade: 88%
